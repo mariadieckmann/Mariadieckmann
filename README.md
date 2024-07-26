@@ -1,16 +1,15 @@
-## Hi there 👋
+## Bem-vindo ao meu perfil😼
 
-<!--
-**mariadieckmann/Mariadieckmann** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- Meu nome é Maria Dieckmann😛
+- Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos😿
+- Estudo num colegio estadual🏫
 
-Here are some ideas to get you started:
+![](![image](https://github.com/user-attachments/assets/58f80955-91e2-47ce-a5d3-029f2bbbf6be)
+)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![image](https://github.com/user-attachments/assets/58f80955-91e2-47ce-a5d3-029f2bbbf6be)
+
+
+![](![image](https://github.com/user-attachments/assets/ef014a3c-e82c-4746-955e-0971ee00d31a)
+)
+![image](https://github.com/user-attachments/assets/bb76fb8a-e4c4-4b16-b866-a0bfaa7b299b)
